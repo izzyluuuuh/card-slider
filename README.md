@@ -1,9 +1,10 @@
 # Card Slider
 
-/ just practicing /
+> [!IMPORTANT]  
+> Not yet done
 
 PENDINGGGGGGG
 
 ---
 
-💙 Instagram: [@izzyluuuuh]
+💙 Instagram: [@izzyluuuuh](https://www.instagram.com/izzyluuuuh/)
