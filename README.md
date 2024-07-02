@@ -1,10 +1,8 @@
 # Card Slider
 
-> [!IMPORTANT]  
-> Not yet done
-
-PENDINGGGGGGG
 
 ---
+
+FOLLOW ME!!
 
 💙 Instagram: [@izzyluuuuh](https://www.instagram.com/izzyluuuuh/)
